@@ -1,1 +1,28 @@
 # Project_apptesbutawarna_PT.RCS
+
+File project private, only patner work can see this content
+
+![1](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/d40fb470-2043-47c3-85b8-02ed4b0bbd32)
+![2](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/b3b6f5bb-7b11-48cd-9b1a-ea3b1f57dec0)
+![3](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/9840d3db-1fc9-434f-955c-279113c055bd)
+![4](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/e6ff572d-c985-4365-9b9d-cb17d5aabf8f)
+![5](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/f41c27a6-c481-4c34-b480-84c0bdc93aea)
+![6](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/6b504b6b-7cb7-4000-bf9e-d4aa6e23188c)
+![7](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/b374f274-adb3-4de7-8a37-4acbd9231041)
+![8](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/392b368d-a378-4d5d-82c2-99f84cc0f9a6)
+![9](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/8ef3aa9c-02e7-4998-9780-189573a9111c)
+![10](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/53b7cc57-f52f-4d09-bcb9-5dfa6412c28d)
+![11](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/e4766878-67c9-4e72-90e7-7bec97bebdcc)
+![12](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/99944aab-debf-49a7-9562-43bd44cb823a)
+![13](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/90fba10d-4430-48b2-8d78-8082e8ff1792)
+![14](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/03549dc5-a2fc-4e6a-9fbc-5599b66fa796)
+![15](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/2621aab8-3b07-4867-aac4-e56ab595e284)
+![16](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/6e52e565-86c3-4063-8156-741ff5805907)
+![17](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/49fb120b-fcc4-45fb-ae42-c0dce3c1607c)
+![18](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/4f1c9213-ad95-4ff9-bc66-905d5ba0c76b)
+![19](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/52e922c2-37ba-4321-9c2e-5b07ac543327)
+![20](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/4b08fd6f-6598-40d3-b8f3-21708b928f7d)
+![21](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/b10fa336-546d-4505-8e5b-010a7803afca)
+![23](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/aa24c692-2193-43ac-b768-8f023c7260c4)
+![24](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/578cc11e-471a-4719-bb77-19a6fe631eae)
+![25](https://github.com/mickotubagas/Project_apptesbutawarna_PT.RCS/assets/54829600/eec437c7-5295-4da1-968b-bb3bf2b9f705)
